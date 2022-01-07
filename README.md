@@ -1,2 +1,2 @@
 # raidsrc.github.io
-what's going on
+what's the hell is going on here
